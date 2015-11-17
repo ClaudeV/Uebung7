@@ -163,6 +163,8 @@ Tuccillo Andrea - imagar
 ##V
 von Muehlenen Nair - nairnan
 
+Vernier Claude - ClaudeV
+
 ##W
 Wyss Vanessa - Sebby96
 
